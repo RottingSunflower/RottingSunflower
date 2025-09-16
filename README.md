@@ -1,24 +1,4 @@
 <!DOCTYPE html>
-<html lang="en">
-<head>
-  <meta charset="UTF-8">
-  <meta name="viewport" content="width=device-width, initial-scale=1.0">
-  <title>Lace Divider Example</title>
-  <style>
-    body { background: #000; /* black background like your images */
-      color: white;
-      text-align: center;
-      font-family:
-  <div class="lace-divider"></div>
-
-  <p>This is some text below the fancy lace divider.</p>
-
-  <div class="lace-divider-thin"></div>
-
-  <p>More text here.</p>
-</body>
-</html>
-
 ╭──────༺♡༻──────╮ 
        
 <p align="center">
