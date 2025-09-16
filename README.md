@@ -11,10 +11,9 @@
   This is the Main Account / GitHub And Feel free to add me in PonyTown / Roblox! ( Unless We Talked ) : 3
   Feel free to be my friend also! 
 
-• Check My StrawPage : 3
+• Check My StrawPage : 3 ( I have 2 sp ) 
 • Likes Astrology / Planets
 • Watch Beastars / Solarballs
+</p>    
 
-</p>
-       
 ╰──────༺♡༻──────╯
