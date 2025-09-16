@@ -17,13 +17,24 @@
 
 • Watch Beastars / Solarballs
 
-</p>  
-<h1 align="center">About Me!
+<h1 align="center">Likes :
 
-<h1 align="center"=Likes
-       
 • The Others are at my StrawPage ( The 2nd One )
+
 • Likes Hugs / Kisses
+
 • Love Drawing
+
+• Likes Badminton
+
+<h1 align="center">DisLikes
+
+• HATES Dandelions SM!! 
+
+• Abandoning me 
+
+• Ignoring me
+
+• Thinks I'm a attention seeker
        
 ╰──────༺♡༻──────╯
