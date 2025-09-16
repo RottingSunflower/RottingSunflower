@@ -8,7 +8,7 @@
 </h1>
 
 <p align="center">
-  This is the main Account And Feel free to add me in PonyTown / Roblox! : 3
+  This is the Main Account / GitHub And Feel free to add me in PonyTown / Roblox! ( Unless We Talked ) : 3
   Feel free to be my friend also! 
 
 • Check My StrawPage : 3
