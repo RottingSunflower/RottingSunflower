@@ -1,4 +1,4 @@
-<h1 ╭──────༺♡༻──────╮ 
+╭──────༺♡༻──────╮ 
        
 <p align="center">
   <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="300"/>
@@ -18,5 +18,12 @@
 • Watch Beastars / Solarballs
 
 </p>  
-<h1 
+<h1 align="center">About Me!
+
+<h1 align="center"=Likes
+       
+• The Others are at my StrawPage ( The 2nd One )
+• Likes Hugs / Kisses
+• Love Drawing
+       
 ╰──────༺♡༻──────╯
