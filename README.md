@@ -8,7 +8,7 @@
 
 <p align="center">
   This is the main Account And Feel free to add me in PonyTown / Roblox! : 3
-  Feel free to my friend also! 
+  Feel free to be my friend also! 
 
 • Check My StrawPage : 3
 • Likes Astrology / Planets
