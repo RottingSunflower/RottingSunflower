@@ -36,5 +36,11 @@
 • Ignoring me
 
 • Thinks I'm a attention seeker
-       
+
+
+<p align="center">Special Thanks:
+
+• Thank you guys for 50+ followers in this account I appreciate you guys 🫶
+• Help me guys reach 100+ followers, ily guys 🫶🫶
+
 <p align="center">╰──────༺♡༻──────╯
