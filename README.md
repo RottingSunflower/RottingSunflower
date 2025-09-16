@@ -17,7 +17,7 @@
 
 • Watch Beastars / Solarballs
 
-<h1 align="center">Likes :
+<p align="center">Likes:
 
 • The Others are at my StrawPage ( The 2nd One )
 
@@ -27,8 +27,7 @@
 
 • Likes Badminton
 
-<h1 align="center">DisLikes
-
+<p align="center">DisLikes:
 
 • HATES Dandelions SM!! 
 
