@@ -40,8 +40,10 @@
 
 <p align="center">Special Thanks:
 
+<p align="center">
 • Thank you guys for 50+ followers in this account I appreciate you guys 🫶
 
+<p align="center">
 • Help me guys reach 100+ followers, ily guys 🫶🫶🥹
 
 <p align="center">Pookies:
