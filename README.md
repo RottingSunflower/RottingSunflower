@@ -54,6 +54,4 @@
 
 • @ You 🫶🫶
 
-⭐  • Sajita is hella SHIT, Using People for help because she got abused by the wind 💔
-
 <p align="center">╰──────༺♡༻──────╯
