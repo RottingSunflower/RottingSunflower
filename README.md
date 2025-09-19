@@ -21,7 +21,7 @@
 • Watch Beastars / Solarballs
 
 <h1 align="center">Likes:
-
+</h1>
 <p align="center">
 • The Others are at my StrawPage ( The 2nd One )
 <p align="center">    
@@ -32,7 +32,8 @@
 • Likes Badminton
 
 <h1 align="center">DisLikes:
-       
+</h1>
+
 <p align="center">
 • HATES Dandelions SM!!
        
@@ -45,6 +46,7 @@
 
 
 <h1 align="center">Special Thanks:
+</h1>
 
 <p align="center">
 • Thank you guys for 50+ followers in this account I appreciate you guys 🫶
