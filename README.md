@@ -44,6 +44,17 @@
 <p align="center">
 • Thinks I'm a attention seeker
 
+<h1 align="center">Fandoms Im In:
+</h1>
+
+<p align="center">
+• Smiling Critters
+<p align="center">
+• Dandys World
+<p align="center">
+• Solarballs
+<p align="center">
+• Beastars
 
 <h1 align="center">Special Thanks:
 </h1>
