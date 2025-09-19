@@ -20,7 +20,7 @@
 <p align="center">Likes:
 
 • The Others are at my StrawPage ( The 2nd One )
-
+<p align="center">
 • Likes Hugs / Kisses
 
 • Love Drawing
@@ -28,7 +28,7 @@
 • Likes Badminton
 
 <p align="center">DisLikes:
-
+<p align="center">
 • HATES Dandelions SM!! 
 
 • Abandoning me 
