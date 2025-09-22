@@ -71,10 +71,10 @@
 <h1 align="center">Special Thanks:
 </h1>
 <p align="center">
-• Thank you guys for 50+ followers in this account I appreciate you guys 🫶
+• Thank you guys for 60+ followers in this account I appreciate you guys 🫶
 
 <p align="center">
-• Help me guys reach 100+ followers, ily guys 🫶🫶🥹
+• My goul is to have about 100+ followers! ( I'm beating Mike's followers lol ) 
 
 <p align="center">
 ﹋﹋﹋﹋﹋﹋୨٭୧﹋﹋﹋﹋﹋﹋
